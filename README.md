@@ -15,6 +15,9 @@ https://github.com/varadbhogayata/varadbhogayata.github.io
 ## Activity 3 SS
 <img width="1464" alt="Screenshot 2023-09-30 at 1 47 57 PM" src="https://github.com/KevinSadigh/KevinSadigh.github.io/assets/79182046/4d180dbf-2e97-4dbe-9ee5-e2e8976ad146">
 
+<img width="915" alt="Screenshot 2023-09-30 at 1 49 10 PM" src="https://github.com/KevinSadigh/KevinSadigh.github.io/assets/79182046/c01e9b3e-31e2-4b06-b2be-55e18884f27d">
+
+
 ## Activity 4 SS
 <img width="1467" alt="Screenshot 2023-09-30 at 2 15 09 PM" src="https://github.com/KevinSadigh/KevinSadigh.github.io/assets/79182046/0b6b352f-4a44-4d12-86f4-24a6f0c2bd7a">
 
